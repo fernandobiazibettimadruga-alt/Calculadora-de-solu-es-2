@@ -1,1 +1,0 @@
-# Calculadora-de-solu-es-2
